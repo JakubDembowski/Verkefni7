@@ -1,1 +1,1 @@
-# Verkefni7
+# Verkefefni 7 VEFÞ.
